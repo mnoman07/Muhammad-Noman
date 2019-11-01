@@ -1,2 +1,2 @@
 # Muhammad-Noman
-death before disgrace
+degree 40 mts syn A
